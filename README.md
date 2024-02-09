@@ -1,4 +1,5 @@
-### Hi there 👋
+### ![1ddc0f983210d1fd0e9f747fac00d159](https://github.com/FierzyGamtenk/FierzyGamtenk/assets/159551188/8288a5dc-9e83-4a13-aff0-7fd23b94b368)
+
 
 <!--
 **FierzyGamtenk/FierzyGamtenk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
